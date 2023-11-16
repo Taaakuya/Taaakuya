@@ -1,6 +1,11 @@
-https;//github.com=Taaakuya/message(down)
-The hack of prodigy i will tell you in a special message...
-ATTENSION
-Membership(down)
-JavaScript(down)
-JavaScript:[playprodigy.com/membership/answer]=yes9403859/unlimited/member=yes/level_up_membership=yes
+Hello! Im current finding prodigy hacks, thankyou for using!
+
+Teleport Door(for message):
+
+kojimatakuya@gmail.com
+
+Im using Android and Apple...
+
+Enjoy:)
+
+From ****** ******
